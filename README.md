@@ -1,1 +1,1 @@
-merhaba bu smm paneli deneme amaclı kurdum
+merhaba bu smm paneli deneme amaclı kurdum.
